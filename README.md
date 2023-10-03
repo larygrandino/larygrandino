@@ -19,7 +19,7 @@ Estou em constante busca de aprendizado na área de Recursos Humanos (RH) e no f
 
 Aprendo rápido e estou sempre pronta para abraçar novos desafios. Além disso, sou uma jogadora de equipe dedicada, pronta para colaborar e apoiar outros profissionais em nossos objetivos comuns.
 <div>
-<img align='right' src="https://cdn.discordapp.com/attachments/1112172622743093278/1158847100554063903/ezgif-2-c4356cecd9.gif?ex=651dbbf7&is=651c6a77&hm=f6a7ee715cf0e402b645270bf66983619463b66d95e06a056bb4c26e977d0f24&" width="230">
+<img align='right' src="https://cdn.discordapp.com/attachments/1112172622743093278/1158847100554063903/ezgif-2-c4356cecd9.gif?ex=651dbbf7&is=651c6a77&hm=f6a7ee715cf0e402b645270bf66983619463b66d95e06a056bb4c26e977d0f24&" width="100">
 </div>
 
 <!--
