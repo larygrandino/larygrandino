@@ -1,4 +1,4 @@
-### Hi there! I'm [Larissa!](https://www.linkedin.com/in/larissafaraujo/) 😉 
+Hi there! I'm [Larissa!](https://www.linkedin.com/in/larissafaraujo/) 😉 
 
 Tech Recruiter and Sourcer in Brazil 🇧🇷
 
@@ -9,7 +9,7 @@ I'm on a constant quest for learning in the field of Human Resources (HR) and th
 I'm a fast learner, always eager to take on new challenges. Moreover, I'm a dedicated team player, ready to collaborate and support fellow professionals in our common goals.
 
 ---
-### Olá! Eu sou a [Larissa!](https://www.linkedin.com/in/larissafaraujo/) 😉
+Olá! Eu sou a [Larissa!](https://www.linkedin.com/in/larissafaraujo/) 😉
 
 Recrutadora e Sourcer de Tech no Brasil 🇧🇷
 
