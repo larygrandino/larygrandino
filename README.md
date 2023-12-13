@@ -1,6 +1,6 @@
 Hi there! I'm [Larissa!](https://www.linkedin.com/in/larissafaraujo/) 😉 
 
-Tech Recruiter and Sourcer in Brazil 🇧🇷
+Technical Recruiter and Sourcer in Brazil 🇧🇷
 
 Passionate about Tech and People 🚀
 
